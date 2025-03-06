@@ -1,1 +1,1 @@
-# nesne-tabanl-
+# nesne ödevi
